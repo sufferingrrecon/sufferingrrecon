@@ -18,7 +18,7 @@
 
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
-<p align="center"<img width="200" height="350" alt="PFP_20260209013848" src="https://github.com/user-attachments/assets/0fa3d784-bb15-4a7e-bfd9-7ecfb8dfa88f" /> 
+<p align="center"><img width="200" height="350" alt="PFP_20260209013848" src="https://github.com/user-attachments/assets/0fa3d784-bb15-4a7e-bfd9-7ecfb8dfa88f" /> 
 <p align="center">Tʜɪs ɪs ᴀ Wᴏʀᴋ ɪɴ Pʀᴏɢʀᴇss. 
 
 <p align="center">───────────────────────────────────────────────────────────────────────────────
