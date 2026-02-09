@@ -27,4 +27,4 @@
 <p align="center">#Cᴏᴍᴍs; ᴘᴀʀᴛɪᴀʟʟʏ ᴄʟᴏsᴇᴅ
 
 
-<p align="center"><img width="900" height="700" alt="PFP_20260209000845" src="https://github.com/user-attachments/assets/c4afc218-bb39-4508-978c-8f269a37e708" />
+<p align="center"><img width="700" height="500" alt="PFP_20260209000845" src="https://github.com/user-attachments/assets/c4afc218-bb39-4508-978c-8f269a37e708" />
