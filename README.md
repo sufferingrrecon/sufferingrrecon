@@ -25,7 +25,3 @@
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
 <p align="center">#Cᴏᴍᴍs; ᴘᴀʀᴛɪᴀʟʟʏ ᴄʟᴏsᴇᴅ
-
-
-<p align="center"><img width="500" height="300" alt="PFP_20260209014851" src="https://github.com/user-attachments/assets/f18928be-04bd-400f-a81a-d37aadf3fb5d" />
-
