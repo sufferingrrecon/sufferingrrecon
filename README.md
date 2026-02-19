@@ -1,5 +1,5 @@
 
-<p align="center">Hᴇʟʟᴏ Mʏ ɴᴀᴍᴇ ɪs Kᴏ̈ɴɪɢ ᴏʀ Rᴏᴀᴍ 
+<p align="center">Hᴇʟʟᴏ Cᴀʟʟ ᴜs Sᴏᴅᴏᴍɪᴢᴇʀ , Sᴏᴅᴏ , ᴏʀ Dᴇᴡᴅʀᴏᴘ.
 
 <p align="center">I ᴀᴍ ᴀ Cᴏᴍᴍɪssɪᴏɴᴇʀ ᴀɴᴅ Aʀᴛɪsᴛ
 
