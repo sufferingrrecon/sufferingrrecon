@@ -1,26 +1,26 @@
 
-<p align="center"> Cᴀʟʟ ᴍᴇ Sᴏᴅᴏ
+<p align="center"> My name is actually unsure of rn . . I'm having some sort of identity crisis |Help|
 
-<p align="center"> Cᴏᴍᴍɪssɪᴏɴᴇʀ ᴀɴᴅ Aʀᴛɪsᴛ
+<p align="center"> Comissioner and Artist . Yet I post slow on Tumblr.
 
-<p align="center">ɪ'ᴍ ᴀ sᴇʀɪᴏᴜsʟʏ ʜᴇᴀᴠʏ ғɪᴄᴛɪᴏɴᴋɪɴ ᴏғ Sᴏᴅᴏ
+<p align="center"> |Insert something here| 
 
-<p align="center">Pʀᴏɴs: Hᴇ-Tʜᴇʏ-Iᴛ
+<p align="center">Pʀᴏɴs: He-It-One
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
-<p align="center">Pʟᴇᴀsᴇ Iɴᴛᴇʀᴀᴄᴛ ғʀᴇᴇʟʏ ʙᴜᴛ ᴡɪᴛʜ ᴄᴀᴜᴛɪᴏɴ, ɪ ᴇɴᴊᴏʏ ᴍᴀᴋɪɴɢ ʙᴀɴᴅᴍᴀᴛᴇs (ғʀɪᴇɴᴅs)
+<p align="center">Interact with cuation please , I enjoy making friends.
 
-<p align="center">Aɴʏᴏɴᴇ ᴄᴀɴ ᴏғᴄ C+H ᴏʀ Iɴᴛ ғʀᴇᴇʟʏ ᴜɴʟᴇss sᴛᴀᴛᴇᴅ ʙᴜᴛ I'ᴍ ᴀ ᴘʀᴇᴛᴛʏ ғʀɪᴇɴᴅʟʏ Gʜᴏᴜʟ, ᴊᴜsᴛ ᴀɴxɪᴏᴜs sᴏᴍᴇᴛɪᴍᴇs.
+<p align="center">Anyone can ofc C+H or Int freely unless stated but I'm a pretty friendly person, just get anxious sometimes.
 
-<p align="center">Bᴇғᴏʀᴇ C+H ᴘʟᴇᴀsᴇ ᴡʜɪsᴘᴇʀ ᴍᴇ ᴊᴜsᴛ ᴀs ᴀ ʜᴇᴀᴅs ᴜᴘ sɪɴᴄᴇ ɪᴛ ᴄᴀɴ ᴄᴀᴜsᴇ ᴍᴇ ᴛᴏ ɢᴇᴛ ɴᴇʀᴠᴏᴜs ɪғ ʏᴏᴜ ᴊᴜsᴛ sᴜᴅᴅᴇɴʟʏ C+H
-
-<p align="center">Usᴇ Tᴏɴᴇ ᴛᴀɢs
+<p align="center">Before cuddling with me please whisper me just as a heads up since it can cause me to get nervous if you just suddenly cuddle.
+  
+<p align="center">Use tone tags , please.
 
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
-<p align="center">Tʜɪs ɪs ᴀ Wᴏʀᴋ ɪɴ Pʀᴏɢʀᴇss. 
+<p align="center">This is a work in progress. 
 
-<p align="center">Pʟᴇᴀsᴇ ɴᴏᴛᴇ ᴛʜᴇ ᴀʙʙᴇʏ ᴀᴋᴀ ᴛʜᴇ sᴛʀᴀᴡᴘᴀɢᴇ ɪs sᴛɪʟʟ ᴀ ʜᴜɢᴇ ᴡᴏʀᴋ ɪɴ ᴘʀᴏɢʀᴇss. Iғ ʏᴏᴜ ᴄᴀɴ'ᴛ ʀᴇᴀᴅ ᴀɴʏᴛʜɪɴɢ ᴘʟᴇᴀsᴇ ʜɪɢʜʟɪɢʜᴛ ɪᴛ ᴛʜᴇɴ ʀᴇᴀᴅ.
+<p align="center">Please not my sites may be removed due to having to remake everything, due to my identity always changing which is so freakin' annoying.
 
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
