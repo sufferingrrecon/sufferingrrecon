@@ -5,7 +5,7 @@
 
 <p align="center"> |Insert something here| 
 
-<p align="center">Pʀᴏɴs: He-It-One
+<p align="center">Pʀᴏɴs: He-It-Hym
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
 <p align="center">Interact with cuation please , I enjoy making friends.
