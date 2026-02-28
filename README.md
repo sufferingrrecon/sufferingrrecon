@@ -1,5 +1,5 @@
 
-<p align="center"> My name is actually unsure of rn . . I'm having some sort of identity crisis |Help|
+<p align="center"> My name is Polaris! |Check my Pro page for more names|
 
 <p align="center"> Comissioner and Artist . Yet I post slow on Tumblr.
 
